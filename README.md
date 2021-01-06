@@ -5,3 +5,4 @@ Sekret czarów Gwen jak i magicznych kamieni tkwi w tej zapalniczce. Jak ktoś c
 Jeśli ta zaplniczka zapisze na zawsze energie elektryczną można uznać ją za magiczną i cód techniki dzięki rezonasowi i manipulacji czasem częstotliwości i informacji.
 Nie jest to fizyka żydowska układanie cegiełek i wciskanie bajek na zasadzie kłamstwa sugesti aby zarobić na biletach zwiedzania piramid stosu kamieni jak w przypadku tokamaka czy pieca spalającego paliwo a nie produkującego go. 
 Tu mamy do czynienia z zawansowanym systemem komputerowym magicznym opartym o kwantową nanotechnologię.
+Disney wam powie że to czary i sprzeda ten gadżet w kiosku z gazetą dla dużych dzieci bajki cycki Dysneya zapalniczka i magiczne papiersoki. Cały sekret istot zwanych smokami biologia komputery nanotechnologia drukarka kwantowa=magia.
